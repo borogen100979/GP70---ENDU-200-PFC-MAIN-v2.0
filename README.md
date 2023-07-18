@@ -1,0 +1,2 @@
+# GP70---ENDU-200-PFC-MAIN-v2.0
+Ресанта 190 ПРОФ GP70 - ENDU 200 PFC MAIN v2.0
